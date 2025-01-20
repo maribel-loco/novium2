@@ -1,3 +1,4 @@
+[InformeDominio.pdf](https://github.com/user-attachments/files/18471966/InformeDominio.pdf)
 ## Hi there 👋
 
 <!--
